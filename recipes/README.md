@@ -1,4 +1,4 @@
-# Everyday recipes to fuffill your tummy
+# Everyday recipes to fulfill your tummy
 
 All recipes uploaded here are encouraged to follow the structure below:
 
